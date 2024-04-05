@@ -199,6 +199,7 @@
 - [Forever Yours (Tribute)](https://open.spotify.com/track/3o1CUVeHIid49sabk6A6Nf?si=4c1a7da714af44d8) by KYGO , AVICII , SANDRO CAVAZZA
 - [Memories](https://open.spotify.com/track/7ilC2N3BVs7CFmEiOIYOep) by NATIIVE - FINLAY
 - [Young Volcanoes](https://open.spotify.com/track/4yXNMbZrsFJbPTH0WfhwEB?si=90da43d70a994840) by Fall Out Boys
+- [You're On Your Own, Kid](https://open.spotify.com/track/4D7BCuvgdJlYvlX5WlN54t?si=3d4144d2ddef42e3) by Taylor Swift
 - [Walking Disasters](https://open.spotify.com/track/282o3drzJvcam50jk7E8ef?si=d436382de50c4f2c) by The Wombats
 - [Halcyon and On and On](https://open.spotify.com/track/5xcunlfaZvD9BDQsLONI7A?si=58b7003dab754102) by Orbital
 - [阿飞的小蝴蝶](https://open.spotify.com/track/0lgx4aYzm8PaYW2mIVwEnj?si=ce1262f53ceb497f) by Jam Hsiao
